@@ -1,2 +1,2 @@
 # ENGLISH-PREMIERE-LEAGUE-2019-2024
-EPL ANALYSIS from 2019-2024 seasons
+English Premier League ANALYSIS from 2019-2024 seasons
